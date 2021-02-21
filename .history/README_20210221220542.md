@@ -1,0 +1,1 @@
+https://www.salted-fish.top/#/blog-detail/13
